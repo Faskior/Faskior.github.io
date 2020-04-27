@@ -5,4 +5,4 @@
 
 * Novas ideias sempre serão implementadas.
 __________________________________________________________________________________________
-![](https://i.pinimg.com/originals/84/d8/7e/84d87eb7e536135161c55887d878d44b.gif)
+![](https://cdn.discordapp.com/attachments/699470260457439242/704339634217287710/84d87eb7e536135161c55887d878d44b.gif)
