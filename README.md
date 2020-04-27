@@ -4,5 +4,5 @@
 * 100% Informativo para o leitor.
 
 * Novas ideias sempre serão implementadas.
-
+__________________________________________________________________________________________
 ![](https://media.giphy.com/media/5e25aUTZPcI94uMZgv/giphy.gif)
