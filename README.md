@@ -5,4 +5,4 @@
 
 * Novas ideias sempre serão implementadas.
 __________________________________________________________________________________________
-![](https://gifimage.net/wp-content/uploads/2018/11/transparent-loading-gif-free-2.gif)
+![](https://i.stack.imgur.com/0kVU5.gif)
