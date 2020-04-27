@@ -5,4 +5,4 @@
 
 * Novas ideias sempre serão implementadas.
 __________________________________________________________________________________________
-![](https://media.giphy.com/media/5e25aUTZPcI94uMZgv/giphy.gif)
+![](https://i.pinimg.com/originals/84/d8/7e/84d87eb7e536135161c55887d878d44b.gif)
